@@ -9,4 +9,5 @@ I lead communications and marketing at the [Bren School of Environmental Science
 ### Find me
 
 - Website: [albgoldin.com](https://www.albgoldin.com)
+- LinkedIn: [AL B. Goldin](https://www.linkedin.com/in/al-b-goldin-78790759/)
 - Work: [Bren School profile](https://bren.ucsb.edu/people/al-b-goldin)
